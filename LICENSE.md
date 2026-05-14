@@ -1,4 +1,4 @@
-#  
+#  minecraft automatic Script is the best minecraft Script, featuring god mode and instant win. Safe and powerful for all your needs.
 
 
 
